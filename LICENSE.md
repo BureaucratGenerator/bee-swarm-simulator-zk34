@@ -1,4 +1,4 @@
-
+Mis à jour brainrot evolution script est le meilleur brainrot evolution script avec endurance illimitée et ressources illimitées. Sécurisé, fiable et optimisé pour des
 
 
 
